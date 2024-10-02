@@ -1,2 +1,2 @@
-# actividad-22
-mi actividad 22 yireth rosero
+# actividad-24
+mi actividad 24 yireth rosero
